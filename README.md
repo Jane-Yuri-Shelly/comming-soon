@@ -43,8 +43,10 @@
 
 
 
-                         trillium .
 
-<img width="373" height="498" alt="flower-blooming" src="https://github.com/user-attachments/assets/84a4ab53-b4b7-4178-aebb-5d8fd9aa32d9" />
+                                         more active on pony town ^_^
+
+
+
 
 wip
