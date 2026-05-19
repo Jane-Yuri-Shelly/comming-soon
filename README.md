@@ -16,9 +16,9 @@
 
 <details>
 <summary> ${\textsf{\color{#3e4cb6}about}}$ ${\textsf{\color{#3e4cb6}⊹ ࣪ ˖}}$ </summary>
-  ${\textsf{\color{#8f5947}diagnosed with autism}}$ ${\textsf{\color{#83281F},}}$ ${\textsf{\color{#8f5947}suspected npd}}$ ${\textsf{\color{#83281F}.}}$  
+  ${\textsf{\color{#3e4cb6}yuri / jane.}}$ ${\textsf{\color{#3e4cb6}she/they}}$ ${\textsf{\color{#3e4cb6}ONLY}}$ ${\textsf{\color{#83281F}.}}$  
   
-  ${\textsf{\color{#8f5947}anti}}$ ${\textsf{\color{#83281F}-}}$ ${\textsf{\color{#8f5947}censorship}}$ ${\textsf{\color{#83281F}╱}}$ ${\textsf{\color{#8f5947}anti}}$ ${\textsf{\color{#83281F}-}}$ ${\textsf{\color{#8f5947}harassment}}$ ${\textsf{\color{#83281F}.}}$
+  ${\textsf{\color{#8f5947}}}$ ${\textsf{\color{#83281F}-}}$ ${\textsf{\color{#8f5947}censorship}}$ ${\textsf{\color{#83281F}╱}}$ ${\textsf{\color{#8f5947}anti}}$ ${\textsf{\color{#83281F}-}}$ ${\textsf{\color{#8f5947}harassment}}$ ${\textsf{\color{#83281F}.}}$
   
   ${\textsf{\color{#8f5947}i like wii deleted you}}$ ${\textsf{\color{#83281F},}}$ ${\textsf{\color{#8f5947}or anything mii}}$ ${\textsf{\color{#83281F}╱}}$ ${\textsf{\color{#8f5947}wii related really}}$ ${\textsf{\color{#83281F}.}}$
 
